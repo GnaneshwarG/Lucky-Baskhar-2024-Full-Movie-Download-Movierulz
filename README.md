@@ -1,5 +1,6 @@
 # Lucky Baskhar 2024 Full Movie Download Movierulz
 Lucky Baskhar (2024) Full Movie Download - Movierulz
+![Lucky Bhaskar Full Movie Download](https://github.com/user-attachments/assets/d41c3513-08da-44aa-86c2-118f1c29d6f2)
 
 Download Lucky Baskhar (2024) movie Free 1080p, 720p, 320p, 240p and HD on Movierulz, Strea𝚖ing the Ful𝚕 Mo𝚟ie 𝙾nl𝚒ne (FREE)
 DOWNLOAD LINK
